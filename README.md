@@ -1,6 +1,8 @@
 ### Hi there 👋
-
-<!--
+jhennifer helen 17 anos 
+gostando de um pia 
+gosto de sair de casa 
+nao gosto de algumas coisas.
 **jhenniferlima/jhenniferlima** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
